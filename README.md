@@ -1,4 +1,4 @@
-# Hi, I'm BYIRINGIRO Anicet 👋
+# Hi, I'm Anicet BYIRINGIRO 👋
 
 🎓 **Bachelor's degree in Applied Statistics** | Kigali, Rwanda  
 💼 Accounting & Finance Professional | Data Analyst in Training  
